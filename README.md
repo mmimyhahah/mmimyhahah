@@ -20,17 +20,23 @@ FAVORITE EMOTES: 💐, 🌸, 💮, 🌹, 🌻, 🌼, 🌱, 🌲, 🌳, 🌴, �
 
 STATUS:
 
-GITHUB STATUS: Look in my GitHUB
+GITHUB STATUS: Take a look in my GitHUB
+
 COMMISION STATUS: SOON (NOT OPEN YET) 
 
 
 CONNECT:
 
 WATTPAD: www.wattpad.com/user/wildlifesavanna
+
 TWITTER: www.twitter.com/wildlifesavanna
+
 INSTA: www.instagram.com/wildlifesavanna
+
 SNAPCHAT: www.snapchat.com/add/ehsacutie
+
 DISCORD TAG: EHSA#6154
+
 DISCORD SERVER: (SOON)
 
 <!---
