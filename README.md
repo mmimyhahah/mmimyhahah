@@ -26,9 +26,10 @@ COMMISION STATUS: SOON (NOT OPEN YET)
 
 CONNECT:
 
-WATTPAD: www.wattpad.com/ehsa
-TWITTER: twitter.com/wildlifesavanna
-INSTA: instagram.com/wildlifesavanna
+WATTPAD: www.wattpad.com/user/wildlifesavanna
+TWITTER: www.twitter.com/wildlifesavanna
+INSTA: www.instagram.com/wildlifesavanna
+SNAPCHAT: www.snapchat.com/add/ehsacutie
 DISCORD TAG: EHSA#6154
 DISCORD SERVER: (SOON)
 
