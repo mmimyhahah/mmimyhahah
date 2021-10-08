@@ -1,7 +1,7 @@
 
 MY INFO:
 
-NAME: Ehsa
+NAME: Star Galaxy
 
 AGE: SECRET
 
@@ -15,14 +15,14 @@ LIKES: Aesthetic, Cottagecore, Kind People, Cute, Productivity/Motivation, Cozy/
 
 DISLIKES: Memes, Swearing/Slurs, Racism/Homophobia , Bullying/Harrasment, The "LMAO" Word, Other sorts of things happening online
 
-FAVORITE EMOTES: 💐, 🌸, 💮, 🌹, 🌻, 🌼, 🌱, 🌲, 🌳, 🌴, 🌵, 🌿, ☘️, 🍀, 🍁, 🍂, 🍃, AND 🦋
+FAVORITE EMOTES: 💐, 🌸, 💮, 🌹, 🌻, 🌼, 🌱, 🌲, 🌳, 🌴, 🌵, 🌿, ☘️, 🍀, 🍁, 🍂, 🍃, AND 🦋 (Fairycore/Cottagecore Emotes)
 
 
 STATUS:
 
 GITHUB STATUS: Take a look in my GitHUB
 
-COMMISION STATUS: SOON (NOT OPEN YET) 
+COMMISION STATUS: OPEN (Not official yet)
 
 
 CONNECT:
@@ -35,7 +35,7 @@ INSTA: www.instagram.com/wildlifesavanna
 
 SNAPCHAT: www.snapchat.com/add/ehsacutie
 
-DISCORD TAG: EHSA#6154
+DISCORD TAG: Star Galaxy#6154
 
 DISCORD SERVER: (SOON)
 
